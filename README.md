@@ -1,0 +1,1 @@
+# QA-Assesment_Ryukazu-Andara-S
